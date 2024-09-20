@@ -1,1 +1,1 @@
-* Be suspicious of any company that says consultancy in its name. 
+* Be suspicious of any company that says consultancy, consulting in its name. 
